@@ -35,21 +35,21 @@
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
-- [相关笔记](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/juaqsydjhw.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/yvxukytwzq.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/yfnpcpcsrz.md)
-- [相关笔记](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/cekfewbkwl.md)
+- [美国第三代试管婴儿，成功率到底有多高对比国内真相曝光](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
+- [赴美第三代试管婴儿避坑指南：5个关键环节千万别踩雷](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
+- [美国第三代试管婴儿实用干货：流程、费用、注意事项一网打尽](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/juaqsydjhw.md)
+- [美国第三代试管婴儿终极攻略：5 步助你赴美圆梦健康宝宝](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/yvxukytwzq.md)
+- [去美国做第三代试管婴儿这份5步避坑＋高成功率全攻略必须收藏！](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/yfnpcpcsrz.md)
+- [美国第三代试管婴儿5步全流程攻略：高成功率背后的秘诀](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/cekfewbkwl.md)
 
 ## 推荐站点
 
-- [点击查看](https://www.danqiushen.com/165.html)
-- [延伸阅读](https://www.danqiushen.com/139.html)
-- [点击查看](https://www.danqiushen.com/24.html)
-- [更多内容](https://www.danqiushen.com/114.html)
-- [更多内容](https://www.wuzhenzhi.cn/104.html)
-- [详情点击](https://www.wuzhenzhi.cn/41.html)
-- [详情点击](https://www.wuzhenzhi.cn/31.html)
+- [江西供卵三代试管包成功是真的吗？南昌医院三代试管资质全解读](https://www.wuzhenzhi.cn/103.html)
+- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
+- [国内试管婴儿案例最新消息与进展：政策、技术与真实情况解读](https://www.wuzhenzhi.cn/106.html)
+- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
+- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
+- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
+- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
