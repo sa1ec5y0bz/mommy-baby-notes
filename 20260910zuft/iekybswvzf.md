@@ -29,12 +29,20 @@
 
 ## 推荐站点
 
-- [移植囊胚方案有哪些项目可以做？囊胚移植替代方案类型全解析](https://www.wuzhenzhi.cn/118.html)
-- [新疆佳音医院收费大全：试管婴儿费用明细与流程解读](https://www.wuzhenzhi.cn/119.html)
-- [北京哪个医院能做供卵试管——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/12.html)
-- [山东聊城市人民医院做试管吗要多少钱？附试管婴儿2万元补贴政策解读](https://www.wuzhenzhi.cn/120.html)
-- [西安试管婴儿多少钱一次？医保能报销吗？费用与报销全解析](https://www.wuzhenzhi.cn/121.html)
-- [做试管婴儿三次的成功案例有哪些视频？海外第三代试管婴儿成功案例分享](https://www.wuzhenzhi.cn/122.html)
-- [广西试管婴儿可以报销医保吗？2025最新政策与报销流程详解](https://www.wuzhenzhi.cn/123.html)
+- [['https://www.cndcxc.com/daiyunmamai/20251021/16821.html', '三代机构，习惯性流产该如何保胎']](https://www.cndcxc.com/daiyunmamai/20251021/16821.html)
+- [['https://www.eduency.com/125805314146.html', '深圳助孕试管机构,2026深圳未婚做试管机构排名最新汇总,深圳试管婴儿一次能成功吗！']](https://www.eduency.com/125805314146.html)
+- [['https://www.monpun.com/1303200231489.html', '二胎备孕指南：2026年试管婴儿费用揭秘']](https://www.monpun.com/1303200231489.html)
+- [['https://www.dyqlsu.com/20250114-254.html', '昆明爱维艾夫服务质量测评：对比公立医院，这里的试管体验值不值？']](https://www.dyqlsu.com/20250114-254.html)
+- [['https://www.phetpalace.com/142.html', '供卵公司：孕早期保胎须知']](https://www.phetpalace.com/142.html)
+- [['https://www.cmanrxrr.cn/2775115062531.html', '2026年成都西囡医院试管借卵费用要多少钱？,代孕供卵价格']](https://www.cmanrxrr.cn/2775115062531.html)
+- [['https://www.esc45.com/131.html', '代生价格-卵巢囊肿吃什么药能消']](https://www.esc45.com/131.html)
+- [['https://www.sandwnot.com/218200408396.html', '私立助孕医院-沈阳三代试管婴儿医院：试管婴儿有哪些重要环节？']](https://www.sandwnot.com/218200408396.html)
+- [['https://www.sdwmtgccl.cn/50149247339754.html', '促排卵后喝冬瓜汤好不好？促排可不可以喝冬瓜汤？']](https://www.sdwmtgccl.cn/50149247339754.html)
+- [['https://www.syldezdhkj.cn/16151420009430.html', '广州三代正规代生多少钱啊,广州三代正规代生成功率高']](https://www.syldezdhkj.cn/16151420009430.html)
+- [['https://www.sgdaiyun.com/315493586481.html', '杭州合法供卵中心有哪些,试管婴儿移植在杭州市妇产科医院（杭州市妇幼保健院）需要注意什么？有哪些常见误区？']](https://www.sgdaiyun.com/315493586481.html)
+- [['https://www.zrbbavaq.cn/30322526458900.html', '试管代生相关技术,代怀真的吗,二胎试管前期检查什么']](https://www.zrbbavaq.cn/30322526458900.html)
+- [['https://www.cd-hssf.com/222650963339.html', '2026年运城做试管婴儿第三代费用总共多少？4万元够吗？']](https://www.cd-hssf.com/222650963339.html)
+- [['https://www.cecigou.cn/chuanchengguojidaiyun/20250928/15004.html', '孕中期胎儿8号染色体异常会对孩子造成哪些影响？']](https://www.cecigou.cn/chuanchengguojidaiyun/20250928/15004.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/479.html', '国内供卵多少钱一次_哪里做试管包男孩多,妊娠线和妊娠纹可别搞混']](https://www.ppmaas.com/guoneishiguanjigou/479.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
