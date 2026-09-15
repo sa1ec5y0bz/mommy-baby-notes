@@ -1,0 +1,147 @@
+# 肾肺阴虚干咳吃什么药
+
+> 更新时间：2026-09-15 (UTC+8)
+
+肾肺阴虚干咳的患者，一般情况下可在医生指导下服用中药材或中成药进行治疗。肾肺阴虚干咳中医认为通常是因为肾肺阴液亏虚引起体内虚热，导致患者出现干咳少痰、潮热、盗汗等虚热症状，患者服用药物应以滋阴清热为主。
+
+## 一、中药材：
+
+**1、黄精：**味甘，性平，归脾经、肺经、肾经，具有养阴润肺、补脾益气、滋肾填精的功效，临床常用于治疗阴虚劳咳、肺燥咳嗽、脾虚乏力、食少口干，也可辅助治疗肾亏腰膝酸软、肾肺阴虚干咳；
+
+**2、川贝母：**味苦、甘，性微寒，归肺经、心经，具有清热化痰、润肺止咳、散结消肿的功效，临床常用于辅助治疗虚劳咳嗽、肺热燥咳等症状，对于肾肺阴虚干咳可以起到一定的辅助作用。
+
+## 二、中成药：
+
+**1、百合固金片：**是由百合、地黄、熟地黄、麦冬、当归、玄参、川贝母、桔梗等成分组成的中成药，具有养阴润肺、化痰止咳的功效，临床常用于治疗肺肾阴虚、干咳少痰、咽干咽痛等，方中百合润肺止咳，麦冬养阴生津，熟地黄滋阴补血，可缓解肾肺阴虚干咳的症状；
+
+**2、养阴清肺丸：**主要成分有地黄、麦冬、玄参、川贝母、白芍、牡丹皮、薄荷、甘草等，具有养阴清肺、清热利咽的功效，临床常用于治疗咽喉干燥、疼痛、干咳少痰等症状，方中白芍敛阴收汗，麦冬养阴生津、润肺，玄参滋阴，对于肾肺阴虚干咳症状可起到一定疗效；
+
+**3、百令胶囊：**主要成分为发酵冬虫夏草菌粉，具有补肺肾、益精气的功效，临床常用于肺肾两虚引起的咳嗽、气喘、腰背酸痛等症状，可在一定程度上改善肾肺阴虚引起的干咳。
+
+患者在选择药物时应提前咨询医生，并在医生指导下服用，不可盲目用药，患者在服用药物期间应清淡饮食，避免进食辛辣、刺激性食物，以免增加胃肠道负担，容易影响药物疗效。
+
+## 相关阅读
+
+- [深圳专门做试管的医院成功率有多高,深圳做试管的医院有哪几家！](https://github.com/syevx32qjy/family-health-notes/blob/main/20260910tmal/owyhupcqio.md)
+- [河南省人民医院可以做三代试管婴儿吗？附就医指南！](https://github.com/uvuw5du4om/toddler-parenting-log/blob/main/20260911mxze/enxsvroxhk.md)
+- [怀孕性生活出血是怎么回事](https://github.com/b38lymdomu/baby-food-notes/blob/main/20260911mcsc/nsafajzqyz.md)
+- [总是喜怒无常？注意，这可能是躁郁症！](https://github.com/ntyvivo01u/child-education-notes/blob/main/20260911ynet/vdfazsykhu.md)
+- [北京生殖医院做试管婴儿流程是什么样的？北京生殖医院哪家好？](https://github.com/s6nb3rgjk9/child-care-essays/blob/main/20260910yxwn/khhoyhfrsg.md)
+- [试管婴儿技术能避免唐氏基因遗传吗？如何进行筛查？](https://github.com/b1xp80vbpv/family-health-notes/blob/main/20260910ddfw/bpkdqdybvb.md)
+- [精子弱能做试管婴儿吗？专家告诉你](https://github.com/ij0s3j0vss/pregnancy-care-hub/blob/main/20260910fcqi/ejzavwzltp.md)
+- [泰国试管费用是多少钱?明细是怎样的](https://github.com/znp78by4gt/infant-nutrition-hub/blob/main/20260911ghuq/odkysdcudg.md)
+- [多囊卵巢做试管婴儿一定要减肥吗？](https://github.com/ij0s3j0vss/pregnancy-care-hub/blob/main/20260910fcqi/szpmscvfsr.md)
+- [需要多个试管周期，费用会如何累计？](https://github.com/o6724tzna3/mommy-baby-notes/blob/main/20260910lmeh/byclhksjrj.md)
+- [高龄产妇产后如何正确坐月子？如何保证高龄产妇坐月子的效果？](https://github.com/txmg9t1iil/newborn-parenting-log/blob/main/20260911uzhk/bhzhoimpha.md)
+- [在海南做试管婴儿，这些医院值得推荐](https://github.com/aatdlcl043/kids-nutrition-notes/blob/main/20260911jbgi/dletwmesjv.md)
+- [河南省公务员考试论坛 河南公务员省考](https://github.com/g70kghjs4l/kids-nutrition-notes/blob/main/20260911bcwx/zangarveeo.md)
+- [景德镇三代试管胚胎筛查哪些 景德镇能做试管婴儿吗](https://github.com/wggadvmpg6/pregnancy-care-hub/blob/main/20260910fhds/bqdyzvfeyc.md)
+- [惠州不孕不育医院哪个好?有推荐吗?-其它](https://github.com/b38lymdomu/mom-baby-stories/blob/main/20260911qdav/cavocdsusf.md)
+- [怀孕七个月看男女症状有哪些不同](https://github.com/phka17p770/baby-feeding-guide/blob/main/20260911huya/uuqprwvfzv.md)
+- [【科普】新生儿疾病筛查之苯丙酮尿症](https://github.com/ntyvivo01u/baby-food-notes/blob/main/20260911fdor/nokgbqweoj.md)
+- [女人如果过了43岁还可以做试管婴儿吗？](https://github.com/o8mgbpui8y/mommy-baby-notes/blob/main/20260910zgrs/hpsdqvhfta.md)
+- [做三代试管婴儿好的医院做三代试管婴儿哪家医院比较好！附试管花费清单！](https://github.com/z5f5r601d6/toddler-food-ideas/blob/main/20260911nxum/fqjtjieizv.md)
+- [【健康·科普】看奥运会，这些健康不要忽视](https://github.com/vedmkiygf6/child-education-notes/blob/main/20260911trnt/cklsukdrep.md)
+- [喜报！我院成为柳州市唯一一家荣获自治区首批改善护理服务行动优秀案例的单位](https://github.com/lq2k5x6kqh/infant-nutrition-hub/blob/main/20260911jouw/jyennkdukr.md)
+- [珠海妇幼试管婴儿医生排名？附妇幼珠海试管医生推荐？](https://github.com/ovix8rnv9x/baby-care-journal/blob/main/20260910qfmt/hurvcbhitd.md)
+- [南京三代试管婴儿哪个医院技术好？内附本地热门试管医院名单](https://github.com/aatdlcl043/child-education-notes/blob/main/20260911zvqv/cklswpspqb.md)
+- [柬埔寨试管成功率受多种因素影响,附试管费用详情表](https://github.com/iebkyzpjrn/pregnancy-care-hub/blob/main/20260910xmph/xlnfhdfhie.md)
+- [郑州服务较好的不孕不育医院（郑州治疗不孕不育口碑较好的医院）](https://github.com/in5gxld2dh/mom-baby-stories/blob/main/20260911dxdz/vukssmrixw.md)
+- [受孕胚胎着床10天体温变化解析？来看明细！](https://github.com/t57i648hhi/maternal-health-hub/blob/main/20260911zguk/yinmvterya.md)
+- [泉州哪个医院可以做试管婴儿技术好](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910clmh/zpavpfdyzf.md)
+- [南阳比较出名试管医院怎么选择？](https://github.com/h3qlethz3l/family-health-notes/blob/main/20260910qmvp/jxaievnpgf.md)
+- [试管婴儿自然周期和人工周期的区别？附助孕机构费用！](https://github.com/cwz1rtzls4/pregnancy-care-hub/blob/main/20260910osqy/nhmffgvhef.md)
+- [【实时更新】北京三代试管生孩子医院排名？](https://github.com/j593cre19a/child-care-essays/blob/main/20260910sson/vdudnxamka.md)
+- [上海较好的试管私立试管医院推荐 上海正规私立机构试管安全吗？](https://github.com/zntce2ojnh/mommy-baby-notes/blob/main/20260910xbct/ojepuzzdra.md)
+- [上海市第一妇婴医院做试管第三代试管婴儿生子多少钱?](https://github.com/jg9otl86or/family-health-notes/blob/main/20260910mhrc/cqoyijhypb.md)
+- [怀孕的孩子有什么症状？怀孕可以通过b超看婴女吗？](https://github.com/s4vv96li6k/parenting-daily-tips/blob/main/20260910pjkv/bxpgbnecxu.md)
+- [始基子宫女性患者可以在北京306医院做试管婴儿助孕手术吗？](https://github.com/fbw1fx15bs/parenting-daily-tips/blob/main/20260910yoep/eadmhkbcyo.md)
+- [孕妇能不能吃柚子](https://github.com/qws8inv2p1/mommy-baby-notes/blob/main/20260910umgn/wtzpingnnz.md)
+- [怀孕六个月贫血的表现](https://github.com/a66uv6rprt/mother-baby-diary/blob/main/20260911mwpy/utaxnymwfz.md)
+- [西安三代试管费用多少钱](https://github.com/agufpr6079/mommy-baby-notes/blob/main/20260910fqtd/cicbmncnwa.md)
+- [宝鸡妇幼试管婴儿费用参考，看完明白胚胎移植多少钱](https://github.com/ualf0k98cv/family-health-notes/blob/main/20260910dxrh/bsldlpqtyv.md)
+- [输卵管积水是如何影响怀孕的？做结扎还是做栓塞？](https://github.com/l9lvqnbe4d/new-parent-notes/blob/main/20260911jxcd/pwpdpuhiir.md)
+- [邯郸做试管成功率很高的医院成功率排名](https://github.com/mxtw9dwa7v/kids-nutrition-notes/blob/main/20260911szxd/zlucwnqfes.md)
+
+## 推荐站点
+
+- [郑州第三代试管婴儿详解：费用与医院指南](https://www.dhsuzouzy.cn/23067052313490.html)
+- [孕期吸烟胎儿会畸形！！！,单身代孕](https://www.dgshengxigongchengsl.cn/1706519467519.html)
+- [山大生殖的供卵试管婴儿服务解答](https://www.tjsjyongsheng.cn/317364468337.html)
+- [促排药物全攻略：试管助孕必知指南](https://www.vhpowpj.cn/20250511-170.html)
+- [高龄丁克家庭借卵试管成功孕育新生命的喜悦故事](https://www.huaiyunq.cn/112164911151.html)
+- [试管三代供卵，试管婴儿宝宝移植到哪去](https://www.cndcxc.com/daiyunketang/20251021/17021.html)
+- [承诺不成功全款退还&苏州哪里有代生儿子,2026年苏州做试管婴儿成功率高的有哪几家！附详细明细分享！](https://www.zhangruiqing.cn/307440757061.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguan/20251014/6147.html', '能做借卵试管-荆门试管婴儿补贴多少钱，详解']](https://www.btwtjx.cn/wuhangongluanshiguan/20251014/6147.html)
+- [['https://www.bubustuff.com/116.html', '江西省人民医院试管成功率真实数据：比私立高吗？']](https://www.bubustuff.com/116.html)
+- [['https://www.hongyuhuagong.cn/26599697435069.html', '2026上海新华医院试管婴儿助孕指南：费用、成功率与专家推荐']](https://www.hongyuhuagong.cn/26599697435069.html)
+- [试管促排方案“私人订制”：长、短、拮抗剂方案优缺点大比拼](https://www.njxxwcr.cn/daishengfeiyongmingxi/135.html)
+- [高龄女人卵巢储藏能力差怎样进步不孕不育可以代生成功率？](https://www.bjwdzxkj.cn/2702570072942.html)
+- [代孕套餐介绍-精子冷冻8年是否还能用，揭秘精子库中冻公细胞的存活时间！](https://www.toothree006.cn/224662491405.html)
+- [2026年成都西囡医院试管借卵费用要多少钱？,代孕供卵价格](https://www.cmanrxrr.cn/2775115062531.html)
+- [国内第三代试管助孕费用解析：包生男孩可行性与知名机构推荐](https://www.sdwmtgccl.cn/64445895421899.html)
+- [什么叫一代试管二代试管三代试管？](https://www.cecigou.cn/2020daiyunshengzi/20250928/14988.html)
+- [石家庄代怀小孩_怎样自己联系捐卵,石家庄助孕公司怎么样](https://www.afa2019.com/305511061579.html)
+- [广州多囊卵巢综合症治疗怀孕用药指南](https://www.sdhuabenhuanbao.cn/guoneigongluanpinzhi/163.html)
+- [三代试管助孕喜获麟儿，辅助生殖圆梦之旅](https://www.uueamru.cn/20250821-110.html)
+- [【全面解析】山东辅助生育合法吗？青岛供卵助孕政策法规与伦理边界一文读懂](https://www.skiguo.cn/20260903-442.html)
+- [['https://www.super-hn.cn/208123983592.html', '徐州三代试管婴儿权威医院推荐榜']](https://www.super-hn.cn/208123983592.html)
+- [代怀生宝宝套餐&试管代怀预约,清远试管生宝宝费用明细？附上省钱攻略！](https://www.qumengru.com/126120125474.html)
+- [武汉第三代试管婴儿费用详解：附赠价格明细](https://www.sasksjob.com/420662612160.html)
+- [专业供卵网：备孕期间，男性也要补充叶酸吗？](https://www.luruihang.com/2123.html)
+- [辽宁省中医院试管怎么样，2026最权威助孕成功率数据出炉](https://www.sandwnot.com/216543631313.html)
+- [2026广州能做供卵试管的医院统计，附正规医院卵源难等真实原因 ,可靠代孕机构](https://www.mymydz.cn/218662066102.html)
+- [深圳高龄试管代怀,深圳比较好的生殖医院比较新排行榜，生宝宝医院排名汇总](https://www.eduency.com/107211788280.html)
+- [深圳供卵助孕与试管婴儿医院深度解析](https://www.monpun.com/6538001333693.html)
+- [内蒙哪个供卵好借卵合法的国家国内代生包女孩](https://www.bjjinyukechuangzdh.cn/212.html)
+- [广东幼稚子宫患者辅助生殖：热门代生医院排名与成功率分析](https://www.ewdboe.cn/316935238556.html)
+- [['https://www.hnyataikj.cn/13622925543874.html', '沧州医院招聘公告：供卵代孕机构电话与109人招聘信息']](https://www.hnyataikj.cn/13622925543874.html)
+- [促排卵流程代生儿子正规吗成功率](https://www.sjzgwfjwzhs.cn/35475950249654.html)
+- [助孕单身女性：试管婴儿会不会有缺陷](https://www.cd-hssf.com/326491258598.html)
+- [['https://www.zixigou.com/108.html', '上海美中宜和试管成功率分析：高端私立品牌的核心竞争力测评']](https://www.zixigou.com/108.html)
+- [山东代孕费用全解析：预算明细与省钱技巧](https://www.sdshunhezb.cn/111244876013.html)
+- [代孕的成功率,子宫内莫壁增厚怎么回事？子宫内膜壁增厚是怎么什么原因造成](https://www.ppmaas.com/xuanxingbietaocan/433.html)
+- [河南做试管成功率很高的医院比较新排行榜,试管代孕权威医院排名](https://www.zrbbavaq.cn/27163026914744.html)
+- [河南郑州省妇幼解答 (试管婴儿服务)](https://www.wqxmm.cn/404890507388.html)
+- [['https://www.szgwzx.cn/169.html', '试管代孕成功率与移植后注意事项全解析']](https://www.szgwzx.cn/169.html)
+- [【2026最新】济南医大二院生殖中心怎么样？资质、就诊与挂号指南](https://www.sdxxy.cn/20260829-462.html)
+- [供卵试管代生机构,供卵找天子代怀,试管三代一般多少钱一次 试管三代费用多少成功率高吗](https://www.anyhdlyb.cn/2901672279841.html)
+- [多年不孕怎么办？资深生殖专家解析14个关键问题与助孕方案](https://www.hbhuihaohb.cn/159.html)
+- [南平三代试管可以选择婴儿性别吗？](https://www.mimi567.com/225.html)
+- [['https://www.dzjiurunxcl.cn/11846855526145.html', '39岁未闭经AMH值正常范围及助孕指南']](https://www.dzjiurunxcl.cn/11846855526145.html)
+- [代生费用排名：17mm的卵泡能不能受孕？17mm卵泡受孕几率？](https://www.jszgyh.com/117065006104.html)
+- [['https://www.wahuobao.com/12.html', '解析中山不孕不育医院：代怀产子与供卵代怀成功率的优势']](https://www.wahuobao.com/12.html)
+- [多囊卵巢做试管成功率更高？别高兴太早，这几个风险要警惕](https://www.bkudgf.cn/165.html)
+- [备孕吃什么好呢？试管妈妈可以吃扇贝吗？](https://www.dygsdyw.com/120640726174.html)
+- [胖多囊减肥成功后试管好孕！我的励志备孕故事分享](https://www.fyluanpu.cn/221644370126.html)
+- [东莞试管助孕费用详解与明细指南](https://www.chengdusokh.cn/315641307116.html)
+- [绝经后做代生宝宝服务成功率多少](https://www.sjb493.cn/32000333131272.html)
+- [供卵合法吗？安徽供卵政策法规与正规申请条件解读](https://www.fmngst.com/2782378281363.html)
+- [['https://www.cheguangfu.cn/237.html', '天津代孕费用明细,浙江试管婴儿哪家医院好？浙江试管婴儿做一次多少钱']](https://www.cheguangfu.cn/237.html)
+- [2026落户新策：非婚生子女及同性伴侣子女上户口最新流程详解](https://www.hflrwzhs.cn/151.html)
+- [「精子畸形率」精子畸形率升高的原因？](https://www.phetpalace.com/67.html)
+- [浙江做第三代试管婴儿的花费高不高？](https://www.jmxmintuhg.cn/20250406-134.html)
+- [代生价格-卵巢囊肿吃什么药能消](https://www.esc45.com/131.html)
+- [不结婚，没结婚证能做试管婴儿吗？](https://www.dyokx.com/hangzhoudaihuaishiguan/358.html)
+- [详解杭州富阳区妇幼保健院供精人工授精费用及流程](https://www.cddyunw.com/419091239476.html)
+- [优质胚胎的特征是碎片少于5%且卵裂球形态差异小吗？](https://www.vecsi.cn/shanxizhuyunfeiyong/2734.html)
+- [供卵包男孩：igm和igg哪个影响怀孕](https://www.gyzhixiao.cn/182.html)
+- [贵阳妇幼保健院试管婴儿费用清单，2026助孕成功率公布](https://www.jzcwjz.net/192.html)
+- [大连市借卵试管医院推荐及供卵包生男孩价格详解](https://www.haojiezhishi.cn/10.html)
+- [硚口区、汉阳区哪里有做试管的中介？武汉西部区域试管中介盘点](https://www.satghenga.cn/210370726209.html)
+- [同性群体的生育突围：辅助生殖如何帮助拉拉/基友通过科技拥有血缘后代](https://www.weywjei.cn/20250826-176.html)
+- [输卵管积水对试管婴儿着床的影响与治疗对策](https://www.apkbwvg.cn/danshenshiguanfangan/145.html)
+- [国外合法代孕,解决输卵管堵塞的有效方案是什么](https://www.dyqlsu.com/20250328-391.html)
+- [2026年广西供卵试管助孕机构推荐与费用解析](https://www.chdhaishendq.cn/115274275244.html)
+- [江西哪里做试管婴儿成功率高？](https://www.hghbjm.com/194.html)
+- [华孕宝揭秘：三代试管婴儿染色体筛查的适宜人群与优势](https://www.gaodunxinkj.cn/20250826-169.html)
+- [助孕价格费用大概多少？2026年辅助生殖全包套餐市场调研报告](https://www.szanguangkeji.cn/tongxingshiguanzhuyun/100.html)
+- [['https://www.lianhuahushengqun.cn/215203314361.html', '可靠供卵资询：孕早期褐色分泌物持续多长时间']](https://www.lianhuahushengqun.cn/215203314361.html)
+- [['https://www.liangzimayi.com/14.html', '实地暗访：武汉黄陂区助孕中介靠谱吗？看专家怎么说']](https://www.liangzimayi.com/14.html)
+- [做试管代生收费促排后卵泡多怎么办？试管代生收费促排后期卵泡数量会变多吗？](https://www.syldezdhkj.cn/21784709345408.html)
+- [['https://www.airpoolmall.com/131.html', '上海世纪助孕口碑好吗？真实客户服务过程评价大公开']](https://www.airpoolmall.com/131.html)
+- [代生公司价格-女人提前绝经的危害](https://www.dymgp.com/7925.html)
+- [['https://www.rongyixueyuan.com/129.html', '高龄夫妇为何热衷试管婴儿助孕？探究辅助生殖技术新趋势']](https://www.rongyixueyuan.com/129.html)
+- [甘肃代生女孩中介前10名医院最新公开(2026三代代生女孩中介**价格表)](https://www.xmxinyhwzhs.cn/14564152057670.html)
+
+*本文整理自母婴健康资讯，仅供科普参考。*
